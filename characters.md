@@ -1,4 +1,4 @@
-Charlie Brown
-Patty
-Shermy
-Snoopy
+Violet Gray
+Schroeder
+Lucy Van Pelt
+Linus Van Pelt
