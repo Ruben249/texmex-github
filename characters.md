@@ -1,4 +1,4 @@
 Charlie Brown
-Patty
+Pig-Pen
 Shermy
 Snoopy
